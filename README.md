@@ -1,0 +1,1 @@
+Black Forest cake is a chocolate sponge cake with a rich cherry filling based on the German dessert Schwarzwalder kirschtorte. typically, Black Forest cake consists of several layers of chocolate sponge cake sandwiched with whipped cream and cherries.
